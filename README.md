@@ -3,8 +3,8 @@ this file will help you to get life time microsoft office for lifetime ... thank
 ##About
 This file will provide you all the Microsoft Office product key . you will get free lifetime customer service .  If you get any help by using this tool .. put a comment and review.. Thank you for your support
 ## process 
-1 Copy all the text in this file 
-2 Go to youe desktop and create a text file 
+1 Copy all the text in this file.\n
+2 Go to youe desktop and create a text file.\n
 3 Paste all text in this file 
 4 Save the file 
 5 Refresh your computer 
